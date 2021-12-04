@@ -1,1 +1,1 @@
-# Chron
+# Chron Coin
